@@ -1,3 +1,3 @@
-- item
-- item2
-- item3
+- Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
+- Wide-angle lens ~490€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x)
+- Telephoto lens ~2500€: [Fujinon XF 150-600mm f5.6-8](https://www.fotonordic.fi/product/117743/fujifilm-fujinon-xf-150-600mmf56-8-r-lm-ois-wr)
