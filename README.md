@@ -14,7 +14,8 @@
 
 - color laser printer
 - two bread pans
-
+- toiletry bag
+- fiveish iot thermometers and a hub for home automation
 
 
 
