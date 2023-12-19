@@ -13,3 +13,10 @@
 # In planning
 
 - color laser printer
+- two bread pans
+
+
+
+
+
+
