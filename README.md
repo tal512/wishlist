@@ -2,7 +2,7 @@
 
 - Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
 - Star tracker ~450€: [Sky-Watcher Star Adventurer 2i WIFI Pro](https://www.astroart-store.fi/product/2/star-adventurer-2i-wifi-pro)
-- Wide-angle lens ~490€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x)
+- Wide-angle lens ~490-995€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x) or [Fujifilm XF 14mm f2.8](https://www.fotonordic.fi/product/121568/fujifilm-fujinon-xf-14mm-f28-r)
 
 # Others
 
