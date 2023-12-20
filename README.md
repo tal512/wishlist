@@ -7,6 +7,7 @@
 # Others
 
 - Photography book ~10-50€: [Stunning Digital Photography](https://northrup.photo/product/stunning-digital-photography/)
+- Gardening book ~50€: [The Self-Sufficient Backyard](https://self-sufficient-backyard.com/my-book/)
 - Pillow ~200€: [Tempur Ombracio](https://fi.tempur.com/tyyny-FISMARTOMBRACIOM.html)
 - Laptop ~1000€: [Lenovo ThinkPad E16, Ryzen7, 16GB RAM, 512GB SSD](https://www.verkkokauppa.com/fi/product/908134/Lenovo-ThinkPad-E16-Gen-1-16-kannettava-Win-11-Pro-21JT0020M)
 - Telephoto lens ~2500€: [Fujinon XF 150-600mm f5.6-8](https://www.fotonordic.fi/product/117743/fujifilm-fujinon-xf-150-600mmf56-8-r-lm-ois-wr)
