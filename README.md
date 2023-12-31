@@ -17,7 +17,6 @@
 
 - color laser printer
 - toiletry bag
-- fiveish iot thermometers and a hub for home automation
 
 
 
