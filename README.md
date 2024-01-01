@@ -10,7 +10,7 @@
 - Mortar and pestle ~20-50€
 - Gardening book ~50€: [The Self-Sufficient Backyard](https://self-sufficient-backyard.com/my-book/)
 - Pillow ~200€: [Tempur Ombracio](https://fi.tempur.com/tyyny-FISMARTOMBRACIOM.html)
-- Laptop ~1000€: [Lenovo ThinkPad E16, Ryzen7, 16GB RAM, 512GB SSD](https://www.verkkokauppa.com/fi/product/908134/Lenovo-ThinkPad-E16-Gen-1-16-kannettava-Win-11-Pro-21JT0020M)
+- Laptop max 1000€: 16GB RAM, minimum 512GB SSD, CPU Ryzen 5/7 or Intel i5/i7, minimum 15" screen, Windows 11, extendable RAM, extendable M.2 2280 SSD slot
 - Telephoto lens ~2500€: [Fujinon XF 150-600mm f5.6-8](https://www.fotonordic.fi/product/117743/fujifilm-fujinon-xf-150-600mmf56-8-r-lm-ois-wr)
 
 # In planning
