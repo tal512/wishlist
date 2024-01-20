@@ -2,7 +2,7 @@
 
 - Bread pan ~20€: [around 22x10 cm](https://chezmarius.fi/tuote/paderno-alumiininen-leipavuoka-26-x-10cm-15l/)
 - Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
-- Wide-angle lens ~490-995€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x) or [Fujifilm XF 14mm f2.8](https://www.fotonordic.fi/product/121568/fujifilm-fujinon-xf-14mm-f28-r) or [a used copy of the XF 14mm in like new or excellent condition](https://www.mpb.com/en-eu/product/fujifilm-xf-14mm-f-2-8-r)
+- Wide-angle lens ~450-500€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x) or [a used copy of Fujifilm XF 14mm f2.8 in like new condition](https://www.mpb.com/en-eu/product/fujifilm-xf-14mm-f-2-8-r)
 
 # Others
 
