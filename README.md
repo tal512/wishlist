@@ -2,7 +2,7 @@
 
 - Bread pan ~20€: [around 22x10 cm](https://chezmarius.fi/tuote/paderno-alumiininen-leipavuoka-26-x-10cm-15l/)
 - Pentax 200mm f4 SMC Pentax-M ~75€: [in good condition without faults](https://kamerastore.com/search?q=pentax%20200mm%20smc&pf_t_category=Category-Lenses&pf_v_brand=Pentax&pf_t_item_condition=QC-Restored&pf_t_item_condition=QC-Certified)
-- Timex wristwatch ~80-100€: [Expedition Field Chronograph 43mm Leather Watch](https://timex.com/products/expedition-field-chronograph-43mm-leather-watch-t49905)
+- Wristwatch ~80-100€: [Timex Expedition Field Chronograph 43mm Leather Watch](https://timex.com/products/expedition-field-chronograph-43mm-leather-watch-t49905)
 - Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
 - Wide-angle lens ~490€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x)
 
