@@ -11,7 +11,7 @@
 - Photography book ~10-50€: [Stunning Digital Photography](https://northrup.photo/product/stunning-digital-photography/)
 - Mortar and pestle ~20-50€
 - Gardening book ~50€: [The Self-Sufficient Backyard](https://self-sufficient-backyard.com/my-book/)
-- Pentax 200mm f4 SMC Pentax-M ~75€: [in good condition without faults](https://kamerastore.com/search?q=pentax%20200mm%20smc&pf_t_category=Category-Lenses&pf_v_brand=Pentax&pf_t_item_condition=QC-Restored&pf_t_item_condition=QC-Certified)
+- Vintage telephoto lens ~75€: [Pentax 200mm f4 SMC Pentax-M in good condition without faults](https://kamerastore.com/search?q=pentax%20200mm%20smc&pf_t_category=Category-Lenses&pf_v_brand=Pentax&pf_t_item_condition=QC-Restored&pf_t_item_condition=QC-Certified)
 - Wristwatch ~80-100€: [Timex Expedition Field Chronograph 43mm Leather Watch](https://timex.com/products/expedition-field-chronograph-43mm-leather-watch-t49905)
 - Pillow ~200€: [Tempur Ombracio](https://fi.tempur.com/tyyny-FISMARTOMBRACIOM.html)
 - Canon lens adapter ~400€: [Fringer EF-FX Pro III FR-FX3](https://www.fringeradapter.com/canon-ef-to-fujifilm-x)
