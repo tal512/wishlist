@@ -1,5 +1,6 @@
 # Top picks
 
+- Neoprene camera case ~20€: [JJC OC-MC0BK](https://www.jjc.cc/index.php/index/goods/detail.html?id=450) available on [Amazon.de (must support X-T3 and size must be 5.6x3.9x6.0 inches or 142x100x154 mm)](https://www.amazon.de/gp/aw/d/B079JGKZZR/)
 - Bread pan ~20€: [around 22x10 cm](https://chezmarius.fi/tuote/paderno-alumiininen-leipavuoka-26-x-10cm-15l/)
 - 2x Small lens pouch ~20€ each: [JJC Deluxe Lens Pouch, Xxtra Small, DLP-1II](https://www.fotonordic.fi/product/108208/jjc-deluxe-lens-pouch-xxtra-small-dlp-1ii) or [cheaper through Amazon.de (but more difficult to find the exact product)](https://www.amazon.de/-/en/JJC-DLP-6II/dp/B073319668)
 - Large lens pouch ~30€: [JJC Deluxe Lens Pouch, Medium, DLP-4II](https://www.fotonordic.fi/product/107940/jjc-deluxe-lens-pouch-medium-dlp-4ii) or [cheaper through Amazon.de (but more difficult to find the exact product)](https://www.amazon.de/-/en/JJC-DLP-6II/dp/B07331S38W)
