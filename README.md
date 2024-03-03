@@ -17,6 +17,7 @@
 - Mortar and pestle ~20-50€: Something that looks nice and seems practical
 - Gardening book ~50€: [The Self-Sufficient Backyard (troublesome to order a physical copy to EU)](https://self-sufficient-backyard.com/my-book/)
 - Wristwatch ~80-100€: [Timex Expedition Field Chronograph 43mm Leather Watch (I like the colors and style, but it might be discontinued in EU)](https://timex.com/products/expedition-field-chronograph-43mm-leather-watch-t49905)
+- Vintage telephoto lens ~90€: [an M42 mount Jupiter 21M 200mm f4 in good condition without faults](https://kamerastore.com/search?q=jupiter+21m)
 - Vintage telephoto lens ~90€: [an M42 mount Pentax 200mm f4 Takumar (from oldest to newest version: just Takumar, or Auto, or Super, or Super-Multi-Coated, or SMC) in good condition without faults](https://kamerastore.com/search?q=pentax%20200mm%20takumar&pf_t_item_condition=QC-Certified&pf_t_item_condition=QC-Passed&pf_t_category=Category-Lenses&pf_t_system=System-M42)
 - Pillow ~200€: [Tempur Ombracio](https://fi.tempur.com/tyyny-FISMARTOMBRACIOM.html)
 - Canon lens adapter ~400€: [Fringer EF-FX Pro III FR-FX3](https://www.fringeradapter.com/canon-ef-to-fujifilm-x)
