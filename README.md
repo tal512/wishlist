@@ -6,6 +6,7 @@
 - 2x Small lens pouch ~20€ each: [JJC Deluxe Lens Pouch, Xxtra Small, DLP-1II](https://www.fotonordic.fi/product/108208/jjc-deluxe-lens-pouch-xxtra-small-dlp-1ii) or [cheaper through Amazon.de (but more difficult to find the exact product)](https://www.amazon.de/-/en/JJC-DLP-6II/dp/B073319668)
 - Large lens pouch ~30€: [JJC Deluxe Lens Pouch, Medium, DLP-4II](https://www.fotonordic.fi/product/107940/jjc-deluxe-lens-pouch-medium-dlp-4ii) or [cheaper through Amazon.de (but more difficult to find the exact product)](https://www.amazon.de/-/en/JJC-DLP-6II/dp/B07331S38W)
 - Terrarium book ~30€: [Hello Tiny World](https://www.dk.com/uk/book/9780241695616-hello-tiny-world/)
+- LEGO Technic ~100€: [Planet Earth and Moon in Orbit](https://www.lego.com/en-fi/product/planet-earth-and-moon-in-orbit-42179)
 - Casserole set ~100€: eg [Opa Mari Casserole set 5 liters](https://opamuurikka.fi/en/product/mari-3-tier-steamer-pot-5-0-l/)
 - Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
 
