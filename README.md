@@ -29,6 +29,7 @@
 
 - color laser printer
 - toiletry bag
+- 3d printer
 
 
 
