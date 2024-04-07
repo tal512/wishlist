@@ -23,7 +23,7 @@
 - Canon lens adapter ~400€: [Fringer EF-FX Pro III FR-FX3](https://www.fringeradapter.com/canon-ef-to-fujifilm-x)
 - Wide-angle lens ~490€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x)
 - Laptop max 1000€: 16GB RAM, minimum 512GB SSD, CPU Ryzen 5/7 or Intel i5/i7, minimum 15" screen, Windows 11, extendable RAM, extendable M.2 2280 SSD slot
-- Telephoto lens ~2500€: [Fujinon XF 150-600mm f5.6-8](https://www.fotonordic.fi/product/117743/fujifilm-fujinon-xf-150-600mmf56-8-r-lm-ois-wr)
+- Telephoto lens ~1700€: [Fujinon XF 150-600mm f5.6-8](https://www.fotonordic.fi/product/117743/fujifilm-fujinon-xf-150-600mmf56-8-r-lm-ois-wr)
 
 ## In planning
 
