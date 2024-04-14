@@ -2,10 +2,6 @@
 
 ## Top picks
 
-- Neoprene camera case ~20€: [JJC OC-MC0BK](https://www.jjc.cc/index.php/index/goods/detail.html?id=450) available on [Amazon.de (model name is usually missing, but description can include support for X-T3 and listed size must be 5.6x3.9x6.0 inches or 142x100x154 millimeters)](https://www.amazon.de/gp/aw/d/B079JGKZZR/)
-- 2x Small lens pouch ~20€ each: [JJC Deluxe Lens Pouch, Xxtra Small, DLP-1II](https://www.fotonordic.fi/product/108208/jjc-deluxe-lens-pouch-xxtra-small-dlp-1ii) or [cheaper through Amazon.de (but more difficult to find the exact product)](https://www.amazon.de/-/en/JJC-DLP-6II/dp/B073319668)
-- Large lens pouch ~30€: [JJC Deluxe Lens Pouch, Medium, DLP-4II](https://www.fotonordic.fi/product/107940/jjc-deluxe-lens-pouch-medium-dlp-4ii) or [cheaper through Amazon.de (but more difficult to find the exact product)](https://www.amazon.de/-/en/JJC-DLP-6II/dp/B07331S38W)
-- Terrarium book ~30€: [Hello Tiny World](https://www.dk.com/uk/book/9780241695616-hello-tiny-world/)
 - LEGO Technic ~100€: [Planet Earth and Moon in Orbit](https://www.lego.com/en-fi/product/planet-earth-and-moon-in-orbit-42179)
 - Casserole set ~100€: eg [Opa Mari Casserole set 5 liters](https://opamuurikka.fi/en/product/mari-3-tier-steamer-pot-5-0-l/)
 - Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
@@ -18,7 +14,6 @@
 - Gardening book ~50€: [The Self-Sufficient Backyard (troublesome to order a physical copy to EU)](https://self-sufficient-backyard.com/my-book/)
 - Wristwatch ~80-100€: [Timex Expedition Field Chronograph 43mm Leather Watch (I like the colors and style, but it might be discontinued in EU)](https://timex.com/products/expedition-field-chronograph-43mm-leather-watch-t49905)
 - Vintage telephoto lens ~90€: [an M42 mount Jupiter 21M 200mm f4 in good condition without faults](https://kamerastore.com/search?q=jupiter+21m)
-- Vintage telephoto lens ~90€: [an M42 mount Pentax 200mm f4 Takumar (from oldest to newest version: just Takumar, or Auto, or Super, or Super-Multi-Coated, or SMC) in good condition without faults](https://kamerastore.com/search?q=pentax%20200mm%20takumar&pf_t_item_condition=QC-Certified&pf_t_item_condition=QC-Passed&pf_t_category=Category-Lenses&pf_t_system=System-M42)
 - Pillow ~200€: [Tempur Ombracio](https://fi.tempur.com/tyyny-FISMARTOMBRACIOM.html)
 - Canon lens adapter ~400€: [Fringer EF-FX Pro III FR-FX3](https://www.fringeradapter.com/canon-ef-to-fujifilm-x)
 - Wide-angle lens ~490€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x)
