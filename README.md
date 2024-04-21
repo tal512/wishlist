@@ -2,7 +2,6 @@
 
 ## Top picks
 
-- LEGO Technic ~100€: [Planet Earth and Moon in Orbit](https://www.lego.com/en-fi/product/planet-earth-and-moon-in-orbit-42179)
 - Casserole set ~100€: eg [Opa Mari Casserole set 5 liters](https://opamuurikka.fi/en/product/mari-3-tier-steamer-pot-5-0-l/)
 - Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
 
