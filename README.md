@@ -2,6 +2,7 @@
 
 ## Top picks
 
+- Hip Pack ~65€:[Ulvö Hip Pack Medium](https://www.fjallraven.com/fi/fi-fi/laukut-ja-varusteet/reput-rinkat-ja-laukut/matkailulaukut/ulvo-hip-pack-medium)
 - Casserole set ~100€: eg [Opa Mari Casserole set 5 liters](https://opamuurikka.fi/en/product/mari-3-tier-steamer-pot-5-0-l/)
 - Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
 
@@ -12,7 +13,7 @@
 - Mortar and pestle ~20-50€: Something that looks nice and seems practical
 - Gardening book ~50€: [The Self-Sufficient Backyard (troublesome to order a physical copy to EU)](https://self-sufficient-backyard.com/my-book/)
 - Wristwatch ~80-100€: [Timex Expedition Field Chronograph 43mm Leather Watch (I like the colors and style, but it might be discontinued in EU)](https://timex.com/products/expedition-field-chronograph-43mm-leather-watch-t49905)
-- Vintage telephoto lens ~90€: [an M42 mount Jupiter 21M 200mm f4 in good condition without faults](https://kamerastore.com/search?q=jupiter+21m)
+- Digital thermometer ~100€: [Thermapen ONE](https://thermapen.co.uk/thermapen-thermometers/184-281-thermapen-one-thermometer.html)
 - Pillow ~200€: [Tempur Ombracio](https://fi.tempur.com/tyyny-FISMARTOMBRACIOM.html)
 - Canon lens adapter ~400€: [Fringer EF-FX Pro III FR-FX3](https://www.fringeradapter.com/canon-ef-to-fujifilm-x)
 - Wide-angle lens ~490€: [Viltrox 13mm f1.4 for Fuji X](https://www.fotonordic.fi/product/117568/viltrox-13mm-f14-xf-af-fuji-x)
