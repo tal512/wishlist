@@ -4,8 +4,8 @@
 
 - Lens bag ~35€: [Lowepro Lens Case 9X13](https://www.fotonordic.fi/product/115810/lowepro-lens-case-9x13--suojakotelo)
 - Lens bag ~50€: [Lowepro Lens Case 11x26](https://www.fotonordic.fi/product/103200/lowepro-lens-case-11-x-26-musta)
-- Hip Pack ~65€: [Ulvö Hip Pack Medium](https://www.fjallraven.com/fi/fi-fi/laukut-ja-varusteet/reput-rinkat-ja-laukut/matkailulaukut/ulvo-hip-pack-medium)
 - Electric shaver ~50-100€: [With round blades, for example this](https://www.power.fi/kauneus-ja-terveys/miesten-ihokarvojen-hoito/parranajokoneet/philips-s546617-series-5000-partakone/p-1538818/)
+- Hip Pack ~65€: [Ulvö Hip Pack Medium](https://www.fjallraven.com/fi/fi-fi/laukut-ja-varusteet/reput-rinkat-ja-laukut/matkailulaukut/ulvo-hip-pack-medium)
 - Coffee grinder ~180-200€: [newer model](https://www.crema.fi/fi/products/baratza/encore-esp/11729) or [older model](https://www.crema.fi/fi/products/baratza/encore/2293)
 
 ## Others
