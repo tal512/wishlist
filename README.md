@@ -12,7 +12,6 @@
 
 - Valokuvauskirja ~10-50€: [Stunning Digital Photography (voi olla vaikea tilata Eurooppaan)](https://northrup.photo/product/stunning-digital-photography/)
 - Leipävuoka ~20€: [koko noin 22x10 cm](https://chezmarius.fi/tuote/paderno-alumiininen-leipavuoka-26-x-10cm-15l/)
-- Mortteli ~20-50€: Jokin kivalta ja käytännölliseltä näyttävä
 - Objektiivipussi ~50€: [Lowepro Lens Case 11x26](https://www.fotonordic.fi/product/103200/lowepro-lens-case-11-x-26-musta)
 - Puutarhanhoitokirja ~50€: [The Self-Sufficient Backyard (voi olla vaikea tilata Eurooppaan)](https://self-sufficient-backyard.com/my-book/)
 - Rannekello ~80-100€: [Timex Expedition Field Chronograph 43mm Leather Watch (pidän väreistä ja tyylistä, mutta taitaa olla lopetettu malli)](https://timex.com/products/expedition-field-chronograph-43mm-leather-watch-t49905)
@@ -24,7 +23,6 @@
 
 ## In planning
 
-- värilaserprintteri
 - wc-laukku
 - 3d-tulostin
 
