@@ -4,7 +4,6 @@
 
 - Objektiivipussi ~35€: [Lowepro Lens Case 9X13](https://www.fotonordic.fi/product/115810/lowepro-lens-case-9x13--suojakotelo)
 - Lyhythihaiset ja -lahkeiset yökkärit kokoa L ~50€
-- Partakone ~50-100€: [Pyöreillä terillä, esimerkiksi tämä](https://www.power.fi/kauneus-ja-terveys/miesten-ihokarvojen-hoito/parranajokoneet/philips-s546617-series-5000-partakone/p-1538818/)
 - Vyötärölaukku ~65€: [Ulvö Hip Pack Medium](https://www.fjallraven.com/fi/fi-fi/laukut-ja-varusteet/reput-rinkat-ja-laukut/matkailulaukut/ulvo-hip-pack-medium)
 - Kahvimylly ~180-200€: [Baratza Encore](https://www.crema.fi/fi/products/baratza/encore/2293)
 
